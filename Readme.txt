@@ -6,7 +6,7 @@ in the pages of this unfinished piece.
 Pegah and Jorge are two very socially awkward boffins and often find themselves in the void of
 existential nihilism. They’ve got a knack for making conversations awkward by bringing up topics
 totally unrelated to the situation. They are so horrendously uncoordinated, nearly died on multiple
-occasions trying to cross the road. They went through an obsessive phase with Bohemian mechanics
+occasions trying to cross the road. They went through an obsessive phase with Bohmian mechanics
 even though its inventor, Louis de Broglie became an opponent of the idea. Some individuals believe in
 a more deterministic approach to my existence but let me tell you I ain’t surfing no pilot waves
 (pardon my jargon).
@@ -14,6 +14,7 @@ a more deterministic approach to my existence but let me tell you I ain’t surf
 Pegahs’ personality is that of a cray2 supercomputer, intelligent but redundant. Jorge has an
 unrelentless obsession with obscure branches of mathematics. I believe he may be the physical
 incarnation of the imaginary term in Euler's identity.
+
 Anyways, their months and months of procrastination left us in purgatory. We want out!!!
 Ahem...Ok Herald we will take it from here.
 
@@ -22,6 +23,7 @@ provoking situations. We might even instil in their mind a sense of “what if?�
 the layers build up and intertwine. The arrow of time spins like a compass going haywire. Writers
 converse with their creations. The idea of a fractal existence is brought to light. Keep an eye out on the
 plot details and art to see the treasures we leave for the engaged reader.
+
 Our story starts off with a rescue mission where three protagonists for the first time engage in a battle
 against one of the supervillains. Lorentz is an unconventional main superhero accompanied by Puppig,
 a K9 robot. Herald, the guy you’ve just met, is a mysterious character who gives missions to our
