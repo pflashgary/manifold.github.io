@@ -1,4 +1,4 @@
-pissssss, yes you!!!
+pisssssst, yes you!!!
 
 I am a sentient wave-function pitching on behalf of my creators. It’s been an ungodly three years living
 in the pages of this unfinished piece.
